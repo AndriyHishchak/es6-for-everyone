@@ -1,3 +1,3 @@
-# my games
+# My games
 
 
